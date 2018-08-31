@@ -12,3 +12,10 @@ Sir Issac newton depicted that nature always follow mathematics. Even if GOD is 
 
 ### Hell yeah, then lets get's started. Here goes the proof.
 
+We are using mathematical reasoning principles, to use the spiritual description of god presented by many sacred texts and using number theory we are interpreting those results.
+
+
+
+
+###### I never thought such concepts would be presented by a foolish person like me. Thanks O lord for giving me this opportunity.
+###### mkkaushiksjce
