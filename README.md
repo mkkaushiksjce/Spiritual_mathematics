@@ -18,4 +18,4 @@ We are using mathematical reasoning principles, to use the spiritual description
 
 
 ###### I never thought such concepts would be presented by a foolish person like me. Thanks O lord for giving me this opportunity.
-###### mkkaushiksjce
+###### Your most(the most) foolish devotee ever, mkkaushiksjce
