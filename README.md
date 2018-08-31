@@ -1,8 +1,8 @@
 # Spiritual_mathematics
 
-## Mathematical Proof of God
+## 1. Mathematical Proof of God
 
-### 1. God doesn't exist, you should be a fool trying to prove the existence of GOD.
+### God doesn't exist, you should be a fool trying to prove the existence of GOD.
 
 May be but in mathematics and physics we first discover the phenomenon and then we reason out how it works, similarly we know the phenomenon called GOD but we need to prove him.
 
